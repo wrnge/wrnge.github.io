@@ -6,4 +6,4 @@
 
 **Email: zyliu@std.uestc.edu.cn**
 
-**Address: Qingshuihe Campus:No.2006, Xiyuan Ave, West Hi-Tech Zone, Chengdu, Sichuan, P.R.China &#124 611731**
+**Address: Qingshuihe Campus:No.2006, Xiyuan Ave, West Hi-Tech Zone, Chengdu, Sichuan, P.R.China &#124; 611731**
